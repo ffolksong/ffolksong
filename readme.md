@@ -1,6 +1,7 @@
 ### Hi there 👋 Nice to see u.
 
-- 😄 My name is: Nattawut Boonmak
+- 🤍 My name is: Nattawut Boonmak
+- 🍃 My nickname is : Folksong
 - ⚡ Student id: 63362082
 - 🔭 I'm currently studying on Faculty of Engineering.
 
